@@ -1,5 +1,6 @@
 # The-Network-State-Review-Actions
 https://twitter.com/bucko4aFREEusa/status/1565216970609496064
+
 A review of The Network State
  A very informative book , covering a wide range of history and possible futures of goverments, coruption, nations, crypto and a possible American Civil War.
  As a Western from the south in the USA. What most would call a "Cospiracy Theorist" the last 20 years. 
